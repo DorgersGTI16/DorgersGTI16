@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @DorgersGTI16
-- 👀 I’m interested in 3d printing and upgrading m3d printers
+- 👀 I’m interested in 3d printing and upgrading 3d printers
 - 🌱 I’m currently learning to alternate the codes on bin,s
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me DorgersGTI16@gmail.com
